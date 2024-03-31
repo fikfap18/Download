@@ -2,7 +2,7 @@
 
 Welcome to FikFap Apk! Official website ( (https://fikfap.download/) ). #1 Entertainment App for Android Smartphones. Watch Live, Short videos, and spicy and juicy videos Free on your smartphone. Download the FikFap Apk from our website.
 
-![Screenshot1](image/fikfap.png)  
+![Screenshot1](image/fikfap.jpg)  
 
 
 FikFap is a popular app gaining attention, similar to TikTok. If you’re familiar with TikTok, you’ll understand what I mean. Nowadays, short videos are booming, and people love this kind of content. Short video content, also known as snackable content, is brief, easy to understand, and visually appealing. It’s designed to convey messages quickly, perfect for viewing on mobile devices.
