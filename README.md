@@ -1,6 +1,6 @@
 # Fikfap Apk download
 
-Welcome to FikFap Apk! Official website. #1 Entertainment App for Android Smartphones. Watch Live, Short videos, and spicy and juicy videos Free on your smartphone. Download the FikFap Apk from our website.
+Welcome to FikFap Apk! Official website [https://fikfap.download/](https://fikfap.download/). #1 Entertainment App for Android Smartphones. Watch Live, Short videos, and spicy and juicy videos Free on your smartphone. Download the FikFap Apk from our website.
 
 ![Screenshot1](image/fikfap.jpg)  
 
